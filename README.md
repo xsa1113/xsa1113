@@ -19,6 +19,3 @@ rlaxogjs1234@naver.com
 
 [https://www.instagram.com/every8ggi/](https://www.instagram.com/every8ggi/)
 
-📱 **phone**
-
-010-8764-6092
