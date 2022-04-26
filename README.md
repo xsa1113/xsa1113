@@ -16,7 +16,6 @@ rlaxogjs1234@naver.com
 📷 **Instagram**
 
 취미
-
 [https://www.instagram.com/every8ggi/](https://www.instagram.com/every8ggi/)
 
 본계정
