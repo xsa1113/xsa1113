@@ -19,6 +19,8 @@ rlaxogjs1234@naver.com
 
 [https://www.instagram.com/every8ggi/](https://www.instagram.com/every8ggi/)
 
+본계정
+[https://www.instagram.com/t__honi/]
 
 ## **🔎 한눈에 보기**
 
